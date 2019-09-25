@@ -1,2 +1,2 @@
 # GetCash
-To kill all exchanges world wide and draw cash anywhere anytime.
+To kill exchanges world wide and draw cash anywhere anytime from any one.
